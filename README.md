@@ -1,0 +1,1 @@
+Finalmente a inovação que o mundo esperava. Água. Em forma de pó. Revolucionária. Absurda. Inevitável. Só adicione dinheiro — e sonhos. $H2PO é a meme coin mais inútil e genial da Solana. Compre antes que acabe o pó.
